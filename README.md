@@ -21,4 +21,4 @@
 #### Discord Username: ramdoguy3659#6613
 
 ## Copyright
-#### You are permitted to give this script for free or use them. Do not SELL my script or claim that this is yours. Do not change any Copyright texts in the script. Leave it.
+#### You are permitted to give this script for free or use them. Do not SELL my script or claim that this is yours. Do not change any Copyright texts in the script. If you are caught selling or claiming that this is your script you will be dealt with.
